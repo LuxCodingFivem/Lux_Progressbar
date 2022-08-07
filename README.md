@@ -6,4 +6,4 @@ Preview: https://youtu.be/nHo5YIH-Dgs
 
 have fun with the script
 
-Join on my Discord: https://discord.gg/SZX74tT7Gv
+Support on my Discord: https://discord.gg/SZX74tT7Gv
