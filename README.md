@@ -7,3 +7,5 @@ Preview: https://youtu.be/nHo5YIH-Dgs
 have fun with the script
 
 Support on my Discord: https://discord.gg/SZX74tT7Gv
+
+Pls Downlaod the newest Release
