@@ -6,6 +6,6 @@ Preview: https://youtu.be/BHpQryCzaVo
 
 have fun with the script
 
-Support on my Discord: https://discord.gg/SZX74tT7Gv
+Support on my Discord: https://luxcoding.mfpscripts.com/
 
 Pls Downlaod the newest Release
